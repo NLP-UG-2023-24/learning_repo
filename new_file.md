@@ -3,3 +3,4 @@ Co mi lezy na sercu ...
 Pozdrawiam wszystkich zgromadzonych
 coś tam
 I <3 UG 
+komuniści podchodzą do komunii
