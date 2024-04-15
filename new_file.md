@@ -4,3 +4,4 @@ Pozdrawiam wszystkich zgromadzonych
 coś tam
 I <3 UG 
 komuniści podchodzą do komunii
+bardzo lubie zajecia z prof baczkowska
